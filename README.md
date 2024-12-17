@@ -1,2 +1,0 @@
-# Energy
-Large And Discraceful
